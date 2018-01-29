@@ -6,6 +6,6 @@
 1. Post a selfie
 ![alt text][selfie]
 
-[selfie]: IMG_20180129_125611.jpg
+[selfie]: WIN_20180129_14_14_20_Pro.jpg
 
-2. Tell me something interesting about yourself
+2. I sail.
