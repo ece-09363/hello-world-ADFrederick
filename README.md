@@ -8,4 +8,4 @@
 
 [selfie]: WIN_20180129_14_14_20_Pro.jpg
 
-2. I sail.
+2. I sail into international waters where screams are lost to the wind and fall on deaf waves.
